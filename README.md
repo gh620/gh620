@@ -5,5 +5,3 @@
 - 📫 How to reach me: grace.huang23@imperial.ac.uk
 - 😄 Pronouns: She/Her
 - ⚡ Fun fact: MBTI: ISFJ
-
-
