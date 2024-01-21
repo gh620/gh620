@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Grace Huang
+## 👋 Hi, I’m Grace Huang
 
 - 💞️ I’m interested in Sleeping((
 - 🌱 I’m doing: MSc in Statistics at Imperial College London
